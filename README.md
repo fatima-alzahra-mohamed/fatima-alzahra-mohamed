@@ -62,5 +62,3 @@ In my free time, you’ll find me exploring new places, reading, taking photos, 
 [![](https://visitcount.itsvg.in/api?id=fatima-alzahra-mohamed&icon=0&color=0)](https://visitcount.itsvg.in)
 
 </div>
-
-<!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
